@@ -5,7 +5,7 @@ boas-vindas:)💜
 
 -aluninha da cintia 🌈
 
--fã do mc kevin 🙅🏼‍♀️
+-mc kevin 🙅🏼‍♀️
 
 -quero fazer medicina ☯︎♠︎
 
